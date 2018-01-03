@@ -116,7 +116,7 @@ Sure enough, the moment the previous topic was settled, Irrazábal asks for the 
 
 Irrazábal asks for the floor: “Aware of how late it is, and of the imminent possibility of the loss of parliamentary status of a half-sanctioned bill that comes unanimously approved by the Chamber of Deputies, I am going to request that the work plan be modified.” The proposal is received with murmurs and agitation by the opposition Senators, but the vote takes place, after a certain stalling by Michetti. The result is favorable: 42 to 17.
 
-Outside, there is hubbub, but also nervousness, because there was very little time left for voting.
+Outside, there is a happy commotion, but also nervousness, because there was very little time left for voting.
 
 At that moment, Federico recalls:
 
