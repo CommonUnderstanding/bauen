@@ -185,10 +185,10 @@ Here is where Marcelo Iurcovich appears: according to an article published by jo
 [^6]: Santiago Or’Donnell, “The father, the son and a spirit non sancto,” in Página/12, 21 August of 2007.
 
 Research by O'Donnell points out that, after the death of Marcelo Iurcovich, his son Hugo became the visible face of the group.
-   
-Those who know him say that he maintains certain a rebellion in his manner and something of a hippie vibe, which was perhaps a product of the time he spent in Buzios setting up a megaresort. His friends say that Hugo felt at ease with people of the farándula, without abandoning the low profile that characterizes the family, and perhaps which is why would they have tipped over their vocation artistic in business related to entertainment, as suggests their participation in the directories of businesses how Deporcor and Event Organizing, to which sumaría the activity property through of the directorate of Sedaguma and Suma.[^8]
+ 
+> Those who know him say he maintains certain a rebellion in his manner and something of a hippie vibe, which was perhaps a product of the time he spent in Buzios setting up a megaresort. His friends say that Hugo felt at ease with celebrities, without abandoning the low profile that characterizes the family, which is perhaps why he turned his artistic vocation into business related to entertainment, as suggested by his participation in the boards of compnies like Deporcor and Event Organizing, in addition to real-estate dealings through of the boards of Sedaguma and Suma.[^8]
 
-continues O'Donnell in its precise description of business of the family Iurcovich:
+O'Donnell continues his precise description of the family Iurcovich businesses:
 
 The wife of Marcelo and mother of Hugo, Raquel Kaliman, too dabbled in the real-estate business, through the signature Consultex, inscribed with home in the offices of the group on Corrientes al 1500. shared the directorate of Consultex with the counter Sterin and with Alejandro Granillo Ocampo, family of the former functionary polyfunctional from the government of Carlos Menem, Raúl Granillo Ocampo. It seems that, Kaliman did not chose the most solvent member, since Alejandro presides (and Raúl was in the directorate of) the constructive riojana Construnoa, that presents credit from category unrecoverable for more than 2 million pesos.
 
