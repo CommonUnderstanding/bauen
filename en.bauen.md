@@ -185,7 +185,7 @@ Here is where Marcelo Iurcovich appears: according to an article published by jo
 [^6]: Santiago Or’Donnell, “The father, the son and a spirit non sancto,” in Página/12, 21 August of 2007.
 
 Research by O'Donnell points out that, after the death of Marcelo Iurcovich, his son Hugo became the visible face of the group.
- 
+   
 Those who know him say that he maintains certain a rebellion in his manner and something of a hippie vibe, which was perhaps a product of the time he spent in Buzios setting up a megaresort. His friends say that Hugo felt at ease with people of the farándula, without abandoning the low profile that characterizes the family, and perhaps which is why would they have tipped over their vocation artistic in business related to entertainment, as suggests their participation in the directories of businesses how Deporcor and Event Organizing, to which sumaría the activity property through of the directorate of Sedaguma and Suma.[^8]
 
 continues O'Donnell in its precise description of business of the family Iurcovich:
