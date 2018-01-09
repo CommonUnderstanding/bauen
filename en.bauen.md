@@ -186,7 +186,7 @@ Here is where Marcelo Iurcovich appears: according to an article published by jo
 
 Research by O'Donnell points out that, after the death of Marcelo Iurcovich, his son Hugo became the visible face of the group.
 
-Those who know him say that maintains certain a rebellion in his manner and something of a hippie vibe, perhaps product of the time that passed in Buzios setting up the business of a megaresort. Their friends say that Hugo felt at ease with people of the farándula, without abandon the low profile that characterizes the family, and perhaps which is why would have tipped over their vocation artistic in business related to entertainment, as suggests their participation in the directories of businesses how Deporcor and Event Organizing, to which sumaría the activity property through of the directorate of Sedaguma and Suma.[^8]
+Those who know him say that maintains certain a rebellion in his manner and something of a hippie vibe, which was perhaps a product of the time that passed in Buzios setting up the business of a megaresort. Their friends say that Hugo felt at ease with people of the farándula, without abandon the low profile that characterizes the family, and perhaps which is why would have tipped over their vocation artistic in business related to entertainment, as suggests their participation in the directories of businesses how Deporcor and Event Organizing, to which sumaría the activity property through of the directorate of Sedaguma and Suma.[^8]
 
 continues O'Donnell in its precise description of business of the family Iurcovich:
 
