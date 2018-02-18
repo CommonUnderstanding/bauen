@@ -182,7 +182,7 @@ Here is where Marcelo Iurcovich appears: according to an article published by jo
 
 [^5]: Noemí Wallingre, History of the Argentine Tourism, Bs. As.: Editions Tourist, 2007.
 
-[^6]: Santiago Or’Donnell, “The father, the son and a spirit non sancto,” in Página/12, 21 August of 2007.
+[^6]: Santiago O’Donnell, “The father, the son and a spirit non sancto,” in Página/12, 21 August of 2007.
 
 Research by O'Donnell points out that, after the death of Marcelo Iurcovich, his son Hugo became the visible face of the group.
  
@@ -190,9 +190,9 @@ Research by O'Donnell points out that, after the death of Marcelo Iurcovich, his
 
 O'Donnell continues his precise description of the family Iurcovich businesses:
 
-> Raquel Kaliman, the wife of Marcelo and mother of Hugo, also dabbled in real-estate business, through the Consultex firm, registered at the group's offices at Corrientes 1500. She shared the directorate of Consultex with the counter Sterin and with Alejandro Granillo Ocampo, family of the former functionary polyfunctional from the government of Carlos Menem, Raúl Granillo Ocampo. It seems that, Kaliman did not chose the most solvent member, since Alejandro presides (and Raúl was in the directorate of) the constructive riojana Construnoa, that presents credit from category unrecoverable for more than 2 million pesos.
+> Raquel Kaliman, the wife of Marcelo and mother of Hugo, also dabbled in real-estate business, through the Consultex firm, registered at the group's offices at Corrientes 1500. She shared the directorate of Consultex with the counter Sterin and with Alejandro Granillo Ocampo, family of the former functionary polyfunctional from the government of Carlos Menem, Raúl Granillo Ocampo. It seems that, Kaliman did not chose the most solvent member, since Alejandro presides over (and Raúl was in the directorate of) the a construction company based in La Rioja, Construnoa, which lists unrecoverable credits of more than 2 million pesos.
 
-Also links the Iurcoviches, in a stage more recent, with real-estate businesses in Puerto Madero through the company Sycic, “a detachment stockholder of the family business Polytechnics” and shareholder of the constructive JM Aragon, Dique 1 and Puerto Holy. As for Polytechnics, it's about a company dedicated to the maintenance of clinics and hospitals that left of the anonymity the 30 June of the 2005, during a episode in which two patients of the Santojanni Hospital died stemming from a mistake made during these maintenance tasks, as put it the newspaper *Clarín*.[^9]
+It also links the Iurcoviches, more recently, with a real-estate businesses in Puerto Madero through the Sycic company, “a detachment stockholder of the family business Polytechnics” and shareholder of the constructive JM Aragon, Dique 1 and Puerto Holy. As for Polytechnics, it's about a company dedicated to the maintenance of clinics and hospitals that left of the anonymity the 30 June of the 2005, during a episode in which two patients of the Santojanni Hospital died stemming from a mistake made during these maintenance tasks, as put it the newspaper *Clarín*.[^9]
 
 [^7]: The attributions of the EAM 78 in reference to credits to private businesspeople are specified in the Decree 1261/77, B.Or. of the 27 of May of 1977.
 
