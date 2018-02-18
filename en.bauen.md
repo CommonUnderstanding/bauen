@@ -194,11 +194,11 @@ O'Donnell continues his precise description of the family Iurcovich businesses:
 
 It also links the Iurcoviches, more recently, with a real-estate businesses in Puerto Madero through the Sycic company, “a detachment stockholder of the family business Polytechnics” and shareholder of the constructive JM Aragon, Dique 1 and Puerto Santo. As for Polytechnics, it is a company dedicated to the maintenance of clinics and hospitals that became infamous on June 30th of 2005, during a episode in which two patients at the Santojanni Hospital died as a result of a mistake made during these maintenance tasks, as the newspaper *Clarín* put it.[^9]
 
-[^7]: The attributions of the EAM 78 in reference to credits to private businesspeople are specified in the Decree 1261/77, B.Or. of the 27 of May of 1977.
+[^7]: The attributions of the EAM 78 in reference to credits to private businesspeople are specified in Decree 1261/77, B.O. of May 27th of 1977.
 
-[^8]: Santiago Or’Donnel, ob. cit.
+[^8]: Santiago O’Donnel, ob. cit.
 
-[^9]: “Citan a indagatoria a five imputados by the deaths in the hospital Santojanni,” in daily *Clarín*, 11 September of 2006. Recovered from http://www.clarin.com/latest-moment/quote-indagatoria-imputados-deaths-hospital-santojanni0Bklt9QkAKx.html
+[^9]: “Five people implicated in the deaths at Santojanni hospital under investigation,” in *Clarín* newspaper, September 11th of 2006. Recovered from http://www.clarin.com/latest-moment/quote-indagatoria-imputados-deaths-hospital-santojanni0Bklt9QkAKx.html
 
 ## How to scam the State
 
